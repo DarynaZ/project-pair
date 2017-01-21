@@ -1,10 +1,1 @@
-njknk
-non
- 
- 
-
-ii
-p
-
-=
-Daryna privet
+j42
